@@ -18,7 +18,7 @@ In this article, we’ll explore the **Chhava Movie 2025**, its significance, an
 
 The **Chhava Movie 2025** seeks to bring a modern and fresh perspective to the portrayal of **Shivaji Maharaj**, one of the most revered figures in Indian history. Unlike other adaptations that primarily focus on the well-known exploits and mature years of Shivaji, the 2025 version delves deeper into his early life, his relationship with his mother Jijabai, and his evolution as a leader and strategist.
 
-The film aims to strike a balance between historical accuracy and cinematic flair, offering audiences an engaging visual experience while staying true to the core values and spirit of Shivaji Maharaj’s life.
+The film aims to strike a balance between historical accuracy and cinematic flair, offering audiences an engaging visual experience while staying true to the core values and spirit of Shivaji Maharaj’s life
 
 Chhava 𝘍𝘜𝘓𝘓𝘔𝘰𝘷𝘪𝘦
 
